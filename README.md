@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @GadhiyaRidham
+- 👀 I’m interested in software development and technology.
+- 🌱 I’m currently learning various programming languages and expanding my skill set.
+- 💞️ I’m looking to collaborate on exciting software projects.
+- 📫 How to reach me: NO Thanks..
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I once built a mini-robot from scratch using recycled materials and programmed it to dance to my favorite song!
